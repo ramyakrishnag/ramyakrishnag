@@ -16,11 +16,11 @@ Works as **Assistant Professor at Guruvayurappan Institute of Management, Coimba
     -  Department of Commerce with Computer Application
     -  **CGPA**:7.7
  
-- **June 2010 - March 2011**: Higher Secondary
+- **June 2006 - March 2008**: Higher Secondary
     - Kannammall National Matriculation Higher Secondary School, Palladam
     - **Percentage**:77.7%
 
-- **June 1997 - 2010**: Secondary
+- **June 2005 - 2006**: SSLC
     - Kannammall National Matriculation Higher Secondary School, Palladam
     - **Percentage**:60% 
 
