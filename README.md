@@ -1,43 +1,56 @@
 # [Ramya Krishna G](https://ramyakrishnag.github.io/)
 
-Works as **Assistant Professor at Guruvayurappan Institute of Management, Coimbatore**. 
+Works as **Assistant Professor at Guruvayurappan Institute of Management, Coimbatore**. Having 11 years of work experience at **RVS Institute of Management Studies, Coimbatore** 
 
-### EDUCATIONAL QUALIFICATIONS
+## Educational Qualification
 
-MBA in Finance and Marketing in the year 2013, from RVS College of Engineering and Technology, Coimbatore affiliated to Anna University, secured 7.41 (CGPA)
+- **August 2011 - June 2013: Master of Business Administration**
+     - Department of Management Studies, RVS College of Engineering and Technology,Coimbatore
+     - **CGPA** :7.41
+     - **Specialization**:Marketing and Finance
+     - **Project**:A Study on Investors Preference about derivative tools at Money Makers, Stock Broking Firm, Coimbatore.
+     - **Project Guide**: Dr A.P. Prasath Kumar
+     - **Responsibilities**: Class Representative & Student Placement Coordinator
+ 
+- **August 2008 - April 2011**: Bachelor of Commerce with Computer Allpication
+    -  Department of Commerce with Computer Application
+    -  **CGPA**:7.7
+ 
+- **June 2010 - March 2011**: Higher Secondary
+    - Kannammall National Matriculation Higher Secondary School, Palladam
+    - **Percentage**:77.7%
 
-B.Com (Computer Applications) in the year 2011, from Nirmala College for Women, affiliated to Bharathiar University, secured 7.7 (CGPA)
+- **June 1997 - 2010**: Secondary
+    - Kannammall National Matriculation Higher Secondary School, Palladam
+    - **Percentage**:60% 
 
-Higher Secondary – 12th in the year 2008, secured 77.7%
+## Certification
 
-Secondary – 10th in the year 2006, secured 60%
+- Diploma in E-Commerce from Nirmala College for Women, affiliated to Bharathiar University 2008 - 2011
 
-### CERTIFICATIONS
+## Work Expirence
+- **July 2025 - Present (Assistant Professor)**
+   - Departrment of Management Studies, Guruvayurappan Institute of Management, Coimbatore
+   - Supervisor: Principal - Dr Vinodh Urath
+   
+- **June 2013 - May 2024 (Assistant Professor)**
+   - Department of Management Studies, RVS Institute of Management Studies, Coimbatore 
+   - Supervisor: Director - Dr P.V. Prabha
+ 
+## Roles & Responsibilities
 
-Diploma in E-Commerce from Nirmala College for Women, affiliated to Bharathiar University [2008 - 2011]
+### Guruvayurappan Institute of Management 
 
-### EXPERTISE
+- Class Advisor From 2025 for 2024 - 2026 Batch MBA
+- IIC Coordinator From 2025
+- Swayam NPTEL Coordinator From 2025
+- R&D Coordinator From 2025
+- Placement Coordinator From 2025
 
-Marketing
+### RVS Institute of Management Studies 
+- NAAC Coordinator for Criterion 5 From 2022 - 2024
+- Alumni Coordinator From 2022 - 2024
+- Academic Coordinator From 2017 - 2024
+- Class Advisor and Mentor From 2016 - 2024
+- Value Added Course Coordinator From 2013 - 2024 
 
-Business Law
-
-Finance
-
-Human Resource Management
-
-International Business
-
-### ROLES & RESPONSIBILITIE
-
-Academic Coordinator [2017 – till 31st May 2024]
-
-NAAC Coordinator for Criterion 5 [2022 – till 31st May 2024]
-
-Alumni Coordinator [2022 - till 31st May 2024]
-
-Class Advisor and Mentor [2016 – till 31st May 2024]
-
-Value Added Course Coordinator [2013 - till 31st May 2024]
-
-IIC Coordinator [2025 till now]
