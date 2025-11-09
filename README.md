@@ -41,7 +41,7 @@ Works as **Assistant Professor at Guruvayurappan Institute of Management, Coimba
 
 ### Guruvayurappan Institute of Management 
 
-- Class Advisor From 2025 for 2024 - 2026 Batch MBA
+- Class Advisor From 2025 From 2025
 - IIC Coordinator From 2025
 - Swayam NPTEL Coordinator From 2025
 - R&D Coordinator From 2025
